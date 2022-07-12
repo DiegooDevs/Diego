@@ -1,5 +1,9 @@
 # Diegoo 2 Grimeyy
-Joins Cracker For Roblox
-This item cracks joins off players and shows what game they are playing.
-This is a extension for google too, tutorial on how too use coming soon.
+VoiceChat Bypassed For Roblox
+This plugin allows you to have voicehat on roblox without verification.
+This is a extension for Opera GX only, soon to be google.
 Thank you for your Patience! 
+
+
+------------------------------WATCH TUTORIAL TO SEE HOW TO USE------------------------------------------
+
